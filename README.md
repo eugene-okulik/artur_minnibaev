@@ -1,1 +1,1 @@
-# sto
+# artur_minnibaev
